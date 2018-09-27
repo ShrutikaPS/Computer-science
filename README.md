@@ -1,2 +1,2 @@
 # Computer-science
-just another repositary
+i m student studing in FYCS 
